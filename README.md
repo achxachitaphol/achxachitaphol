@@ -1,5 +1,5 @@
 # 💫 About Me:
-Wellion Software Co., Ltd.<br>Freelance<br><br>Hi! I'm Achi.
+2022 - present | Wellion Software Co., Ltd.<br>Freelance<br><br>Hi! I'm Achi.
 
 
 # 💻 Tech Skill:
