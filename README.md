@@ -1,5 +1,5 @@
 # 💫 About Me:
-2022 - present | Wellion Software Co., Ltd.<br>Freelance<br><br>Hi! I'm Achi.
+2022 - present | Wellion Software Co., Ltd.<br>2023 - present | <br>Tokio marine Life Insurance (Thailand) PCL.<br><br>Freelance<br><br>Hi! I'm Achi.
 
 
 # 💻 Tech Skill:
