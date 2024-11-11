@@ -1,5 +1,5 @@
 # 💫 About Me:
-2022 - 2023 | Wellion Software Co., Ltd.<br>2023 - present | Tokio marine Life Insurance (Thailand) PCL.<br>
+2022 - 2023 | Wellion Software Co., Ltd.<br>2023 - 2024 | Tokio marine Life Insurance (Thailand) PCL.<br>
 
 
 <!-- # 💻 Tech Skill:
